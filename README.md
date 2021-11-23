@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @dreiakoss
-- 👀 I’m interested in wayne
-- 🌱 I’m currently learning how to live
-- 💞️ I’m looking to collaborate on empathy and electrifying the world with my good vibeszxc
-- 📫 How to reach me? you can't.
+- 👋 Hi, I’m @andreiako
+- 👀 I’m interested in community-building and sustainability
+- 🌱 I’m currently learning how to live my best life
+- 💞️ I’m looking to collaborate on projects surrounding social impact and the environment
+- 📫 How to reach me? you can telegram me @Dreiako
 
